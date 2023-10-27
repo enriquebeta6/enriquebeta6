@@ -13,7 +13,7 @@ Full-stack developer from 🇻🇪 living in 🇧🇷, learning computer science
 
 ### Hobbies
 
-* Read manga annd some books.
+* Read manga and some books.
 * Watch movies, animes and series.
 * Listen music (k-pop, Japanese music, Brasil music, Latin music and random stuff).
 
